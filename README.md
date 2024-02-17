@@ -1,12 +1,14 @@
 👋 Hi, I’m @skytan41
 
-👀✨  I’m interested in chinese culture , like yellow tea
+✨  I’m interested in chinese culture , like yellow tea
 
-🌱✨  I’m currently running web3 fi , focus on trillion RWA asset via Bitcoin BRC management
+🌱 ✨  I’m currently running web3 fi , focus on trillion RWA asset via Bitcoin BRC management
 
- 💞️ ✨ I’m looking to collaborate with guys from all over the world, cause we can cooperate remotely to set a new era
+ 💞️ ✨ I’m looking to collaborate with guys from all over the world, 
  
-📫 How to reach me , just email
+ cause we can cooperate remotely to set a new era
+ 
+📫 How to reach me , just email skytanbusiness@gmail.com
 
 
 😄 Pronouns: 
