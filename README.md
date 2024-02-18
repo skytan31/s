@@ -8,7 +8,7 @@
  
  cause we can cooperate remotely to set a new era
  
-📫 How to reach me , just email skytanbusiness@gmail . com
+How to reach me , just email skytanbusiness@gmail . com
 
 
 😄 Pronouns: 
