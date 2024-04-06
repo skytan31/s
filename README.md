@@ -2,7 +2,7 @@
 
 ✨  I’m interested in chinese culture , like yellow tea
 
-🌱 ✨  I’m currently running web3 fi , focus on trillion RWA asset via Bitcoin BRC management
+🌱 ✨  I’m currently running web3 gamefi , focus on trillion RWA asset via Bitcoin BRC management
 
  💞️ ✨ I’m looking to collaborate with guys from all over the world, 
  
